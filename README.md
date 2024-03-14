@@ -9,7 +9,7 @@
 🌱 I’m currently learning NLP (Natural Language Processing) and DATA science.
 
 ## Collaboration
-💞️ I’m looking to collaborate on new technologies like GenAI Fundamentals and ChatGPT.
+💞️ I’m looking to collaborate on new technologies like GenAI Fundamentals, and eager to collaborate on innovative projects."
 
 ## Contact
 📫 You can reach me via email at [harshitadubeyy100@gmail.com](mailto:harshitadubeyy100@gmail.com).
