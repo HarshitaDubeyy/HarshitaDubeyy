@@ -13,6 +13,7 @@
 
 ## Contact
 📫 You can reach me via email at [harshitadubeyy100@gmail.com](mailto:harshitadubeyy100@gmail.com).
+Linkedin (https://www.linkedin.com/in/harshita-dubey-578952226/)
 
 
 ## Pronouns
